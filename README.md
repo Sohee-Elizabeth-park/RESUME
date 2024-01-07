@@ -1,5 +1,6 @@
 # RESUME
-이력서
+최종 이력서
 
-2st update _ 230106 <br>
-https://evergreen-roundworm-f25.notion.site/230106-6150b38785e4487f9ceac8842c15f12f?pvs=4
+3st update _ 230107 <br>
+수정중 <br>
+https://evergreen-roundworm-f25.notion.site/3_230107-0d4ae06337d2433cb142a984bc18d791?pvs=4
