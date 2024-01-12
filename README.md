@@ -1,6 +1,6 @@
 # RESUME
 최종 이력서
 
-3st update _ 230107 <br>
+4st update _ 230112 <br>
 수정중 <br>
-https://evergreen-roundworm-f25.notion.site/3_230107-0d4ae06337d2433cb142a984bc18d791?pvs=4
+https://evergreen-roundworm-f25.notion.site/4_230111-705c4fa47f2f4f5590ffe50122264f67?pvs=4
